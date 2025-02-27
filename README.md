@@ -1,7 +1,7 @@
 ## <p align="center">Cloudism below...</p>
 $${\color{#75bafb}lastrecode}$$
 <div align="center">
-<img align="center" src="https://files.catbox.moe/r26omw.gif"> she/her ☆ estj 1w9 ☆ 19 y/o <img align="center" src="https://files.catbox.moe/2v1c4x.gif">
+<img align="center" src="https://files.catbox.moe/r26omw.gif"> he/him ☆ estj 1w9 ☆ 19 y/o <img align="center" src="https://files.catbox.moe/2v1c4x.gif">
 </div>
 ㅤ
 <div align="center">
@@ -22,5 +22,5 @@ $${\color{#75bafb}lastrecode}$$
 </div>
 
 <div align="center">
-<img src="https://files.catbox.moe/znt03j.jpg">
+<img src="https://files.catbox.moe/rb2bry.png">
 </div>
