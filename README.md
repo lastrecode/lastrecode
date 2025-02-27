@@ -23,3 +23,7 @@
 <div align="center">
 <img src="https://files.catbox.moe/znt03j.jpg">
 </div>
+
+<div align="center">
+<img src="https://files.catbox.moe/r26omw.gif"><p/ align="center">hi</p>
+</div>
