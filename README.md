@@ -20,3 +20,6 @@
   <a href="">[Learn more here ('-'*)♪](https://guns.lol/adventchildren)
 </div>
 
+<div align="center">
+<img src="https://files.catbox.moe/znt03j.jpg">
+</div>
