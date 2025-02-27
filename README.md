@@ -1,8 +1,8 @@
 ## <p align="center">Cloudism below...</p>
 <div align="center">
-<img align="center" src="https://files.catbox.moe/r26omw.gif"> he/him || estj 1w9 || 19 y/o
+<img align="center" src="https://files.catbox.moe/r26omw.gif"> he/him ☆ estj 1w9 ☆ 19 y/o <img align="center" src="https://files.catbox.moe/2v1c4x.gif">
 </div>
-
+ㅤ
 <div align="center">
   <img src="https://files.catbox.moe/84ciaz.gif">
 </div>
