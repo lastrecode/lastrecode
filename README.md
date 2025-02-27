@@ -4,9 +4,11 @@
 </div>
 ㅤ
 
-<p align="center">I love kingdom hearts, final fantasy, persona, and a bunch of other video game series ^_<</p>
+<p align="center">I love kingdom hearts, final fantasy, persona, dragon ball, and a bunch of other video game + animanga series ^_<</p>
 
 <p align="center">Some of my favorite artists are lyn, takeharu ishimoto, shoji meguro, lucy bedroque, lotus juice, and marluxiam ♡</p>
 
-<p align="center">[Learn more here!](https://guns.lol/adventchildren)</p>
-
+<div align="center">
+  
+  <a href="">[Learn more here ('-'*)♪](https://guns.lol/adventchildren)
+</div>
