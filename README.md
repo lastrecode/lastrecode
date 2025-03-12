@@ -14,7 +14,7 @@ $${\color{#75bafb}lastrecode}$$
 <img src="https://files.catbox.moe/p1ogk1.gif">
 </div>
 ㅤ
-<p align="center">Some of my favorite artists are lyn, takeharu ishimoto, shoji meguro, lucy bedroque, lotus juice, and marluxiam ♡</p>
+<p align="center">Some of my favorite artists are lyn, nobuo uematsu, shoji meguro, GACKT, lucy bedroque, and marluxiam ♡</p>
 
 <div align="center">
   
