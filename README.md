@@ -8,13 +8,13 @@ $${\color{#75bafb}lastrecode}$$
   <img src="https://files.catbox.moe/84ciaz.gif">
 </div>
 ㅤ
-<p align="center">I love kingdom hearts, final fantasy, persona, dragon ball, and a bunch of other video game + animanga series ^_<</p>
+<p align="center">I love kingdom hearts, final fantasy, persona, dragon ball, and a bunch of other video games + animanga series </p>
  ㅤ 
 <div align="center">
 <img src="https://files.catbox.moe/p1ogk1.gif">
 </div>
 ㅤ
-<p align="center">Some of my favorite artists are lyn, nobuo uematsu, shoji meguro, GACKT, lucy bedroque, and marluxiam ♡</p>
+<p align="center">Some of my favorite artists are lyn, nobuo uematsu, toe, shoji meguro, GACKT, videotapemusic, lucy bedroque, and marluxiam ♡</p>
 
 <div align="center">
   
