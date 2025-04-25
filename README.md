@@ -1,7 +1,7 @@
 ## <p align="center">Cloudism below...</p>
 $${\color{#75bafb}lastrecode}$$
 <div align="center">
-<img align="center" src="https://files.catbox.moe/r26omw.gif"> he/him ☆ istj 1w9 ☆ 19 y/o <img align="center" src="https://files.catbox.moe/2v1c4x.gif">
+<img align="center" src="https://files.catbox.moe/r26omw.gif"> he/him ☆ entj 3w2 ☆ 19 y/o <img align="center" src="https://files.catbox.moe/2v1c4x.gif">
 </div>
 ㅤ
 <div align="center">
